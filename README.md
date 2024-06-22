@@ -1,4 +1,4 @@
-## Hi there 👋
+## Haiii im Howl/Hanni !
 
 <!--
 **sluggishcowboy/sluggishcowboy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
